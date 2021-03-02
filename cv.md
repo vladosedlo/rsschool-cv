@@ -17,4 +17,4 @@
 6) After finishing 11 grades of school, I entered BSU, at the moment I am studying in the second year of the **Faculty of Radiophysics and Computer Technologies**
 7) Most of the tests assess my level of English at **B2**, but I find that I am severely lacking in language practice. 
 *I often watch videos and films in English* and consider this to be my main source of language knowledge.
-> **Your time is limited, so don’t waste it living someone else’s life.**
+> **Your time is limited, so don’t waste it living someone else’s life.** ©Steve Jobs
